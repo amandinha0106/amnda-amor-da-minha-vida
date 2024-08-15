@@ -1,1 +1,1 @@
-# amnda-amor-da-minha-vida
+amanda
